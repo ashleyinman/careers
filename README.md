@@ -5,8 +5,8 @@ We offer a great health benefits package, life insurance, and a company matching
 
 Current positions include:
 
-Information Systems Security Analyst
-Senior Oracle Developer
-2 Junior Oracle Developers
-IT Auditor
+Information Systems Security Analyst, 
+Senior Oracle Developer, 
+2 Junior Oracle Developers, 
+IT Auditor,
 Apply online at www.truteam.com/careers or email me directly -- ashley.inman@topbuild.com
