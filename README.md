@@ -3,7 +3,7 @@ Our rockstar IT team handles the support for our 190 construction services divis
 
 Are you looking for an exciting career with an industry leader? TopBuild Corp. (NYSE: BLD) is the leading installer and distributor of insulation products to the United States construction industry, based on revenue. We service 90% of the US Housing Starts. We provide insulation installation services nationwide through our TruTeamSM business, which has over 190 installation branches located in 43 states; we distribute insulation and other building products nationwide through our Service Partners® business from our 72 distribution centers located in 35 states; and we are a leader in building science through TopBuild Home Services, Inc. and its Environments For Living® program. TopBuild’s corporate headquarters is located in Daytona Beach, FL.
 
-We offer a great health benefits package, life insurance, and a company matching 401k package vested day one employment.
+Benefits Package: life insurance, and a company matching 401k package vested day one employment.
 
 Current positions include:
 
